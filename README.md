@@ -1,3 +1,3 @@
 # lawtsang.github.io
-fly to long long ago!
-flygogogo!
+> fly to long long ago!
+> flygogogo!
